@@ -1,5 +1,5 @@
 -ˋˏ ༻❁༺ ˎˊ
-- * SOMEWHAT RECENT ART BY ME 💫 // DO NOT STEAL OR POST ON ANY SOCIAL PLATFORMS !!!
+- * SOMEWHAT RECENT ART BY ME  // DO NOT STEAL OR POST ON ANY SOCIAL PLATFORMS !!!
  
 - * Yes, I do Artz both Traditional and Digital !!!
 
