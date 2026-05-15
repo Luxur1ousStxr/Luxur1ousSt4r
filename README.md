@@ -3,6 +3,6 @@
  
 - * Yes, I do Artz both Traditional and Digital !!!
 
-<img width="2304" height="3072" alt="image" src="https://github.com/user-attachments/assets/2193e38e-498c-44b0-99b0-ed368c67c086" />
+<img width="720" height="594" alt="image" src="https://github.com/user-attachments/assets/0607711f-eefb-4deb-b17b-c2096f504e8a" />
 
 · · ─ ·𖥸· ─ · · 
